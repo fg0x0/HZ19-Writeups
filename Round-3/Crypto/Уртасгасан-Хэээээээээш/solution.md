@@ -2,15 +2,21 @@
 ## 4katsuk1 TEAM 
 
 
+![](https://i.imgur.com/GvQDjJv.png)
 
+![](https://i.imgur.com/b4GGoAK.png)
 
+![](https://i.imgur.com/rCRyztV.png)
 
+![](https://i.imgur.com/ikZ0inY.png)
 
+![](https://i.imgur.com/pO7Ykxw.png)
 
+![](https://i.imgur.com/3bLjDnp.png)
 
+![](https://i.imgur.com/Z9fnpXU.png)
 
-
-
+![](https://i.imgur.com/z5mpbd9.png)
 
 
 
