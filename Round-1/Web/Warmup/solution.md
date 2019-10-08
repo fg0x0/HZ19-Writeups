@@ -2,25 +2,21 @@
 ## 4katsuk1 TEAM
 
 
-<p align="center">
-![](https://i.imgur.com/QggbaCT.png)
-</p>
 
-<p align="center">
+![](https://i.imgur.com/QggbaCT.png)
+
+
 ![](https://i.imgur.com/syPPIhl.png)
-</p>
 
-<p align="center">
-![](https://i.imgur.com/QggbaCT.png)
-</p>
 
-<p align="center">
-![](https://i.imgur.com/QggbaCT.png)
-</p>
+![](https://i.imgur.com/Po4xkX6.png)
 
-<p align="center">
-![](https://i.imgur.com/QggbaCT.png)
-</p>
+
+![](https://i.imgur.com/ZkABthx.png)
+
+
+![](https://i.imgur.com/T9eULU3.png)
+
 
 
 
